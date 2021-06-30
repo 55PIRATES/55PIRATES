@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @55PIRATES
+- 👀 I’m interested in: Art, Economy, Computers, Many other things.
+- 🌱 I’m currently learning: Many things. 
+- 💞️ I’m looking to collaborate on: Anything Creative.
+- 📫 How to reach me: Email/Website/IG
